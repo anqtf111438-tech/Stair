@@ -1,0 +1,1 @@
+This script is really good, it features a build stairs button, btw it's visual and you can only interact with it, but you still ACTUALLY go on the other players end as walking on invisible stairs, but to you your walking on like a red carpet staircase.
